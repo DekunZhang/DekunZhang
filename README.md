@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DekunZhang
+- 👋 Hi, I’m @DekunZhang. You can also call me Elvin.
 - 👀 I’m interested in Gaming, anime, technology and sci-fi.
 - 🌱 I’m currently learning BSc Computer Science at UCL.
 
